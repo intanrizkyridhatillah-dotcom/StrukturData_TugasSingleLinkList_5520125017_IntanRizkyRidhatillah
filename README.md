@@ -1,0 +1,1 @@
+# StrukturData_TugasSingleLinkList_5520125017_IntanRizkyRidhatillah
